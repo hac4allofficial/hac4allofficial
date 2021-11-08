@@ -1,9 +1,8 @@
 ### Hi there, I'm D4RK~D3VIL 
 
 - ☠️ I love hacking At All
-- ☠️ I’m currently learning everything 🤣
+- ☠️ I’m currently learning everything
 - ☠️ Hac4allSecTeam Are Awesome 
-- ☠️ 2020 Goals: Contribute more to Open Source projects
 - ☠️ Fun fact: I love to draw and play online games
 
 ### Connect with me:
